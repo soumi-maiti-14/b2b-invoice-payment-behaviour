@@ -158,8 +158,8 @@ B2B-Invoice-Payment-Behaviour/
 
 **Soumi Maiti**  
 MBA Candidate — Business Analytics & Systems Management  
-IISWBM Kolkata | Roll No.: 102/MBA/241082  
-Subject: Data Mining & Business Analytics
+IISWBM Kolkata  
+[LinkedIn](www.linkedin.com/in/soumi-maiti-2k26)
 
 ---
 
